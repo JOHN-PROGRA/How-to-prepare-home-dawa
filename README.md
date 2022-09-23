@@ -11,9 +11,25 @@
      <li>Garlic</li>
      <li>Lemon</li>
      <li>Honey<li>
-     
-   </ul>
- </body>heat gently ans stir mixed with water for like 5 mintes put honey later.
+  <html>
+      <body>
+          
+      </body>
+  </html>  
+   <head></head>
+   
+   
+ </body>heat the lemon and ginger gently like  5 minutes put honey later.
+ after you have  heat under less heat  leave it to loose some heat, pour it in your favourute cup 
+ and add the rest of ingredients ,stir till in for a mixture of substance
+ Now ready to serve at the comfort of your seat.
+ 
+<html> </html>
+<body></body>
+ This <title>
+     <body></body>
+ </title>
+ recipe was prepared by @Dr24__
 </html>
 
 
